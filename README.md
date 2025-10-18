@@ -1,7 +1,7 @@
 <div align="center">
 
-${\textsf{\color{#B6C299}but⠀⠀i⠀⠀know⠀⠀you}}$\
-${\textsf{\color{#B6C299}know⠀⠀who⠀⠀i⠀⠀am⠀⠀...⠀}}$\
+${\textsf{\color{#9CB094}but⠀⠀i⠀⠀know⠀⠀you}}$\
+${\textsf{\color{#9CB094}know⠀⠀who⠀⠀i⠀⠀am⠀⠀...⠀}}$\
 ⠀
 
 ![](https://files.catbox.moe/n04iuo.png)\
