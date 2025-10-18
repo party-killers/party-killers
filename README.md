@@ -10,7 +10,13 @@ ${\textsf{\color{#9CB094}know⠀⠀who⠀⠀i⠀⠀am⠀⠀...⠀}}$\
 ${\textsf{\color{#B6C299}andrew⠀⠀﹔⠀ fictionkin}}$\
 ${\textsf{\color{#B6C299}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
 
-${\textsf{\color{#B6C299}he⠀⠀ᵒᵘ⠀⠀they}}$
+${\textsf{\color{#B6C299}he⠀⠀ᵒᵘ⠀⠀they}}$\
+⠀
 
+[ponytown info](https://rentry.co/ponytownlings)\
+⠀
+
+✦\
+⠀
 
 </div>
