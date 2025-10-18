@@ -1,16 +1,16 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**backseatlovers/backseatlovers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+${\textsf{\color{#B6C299}but⠀⠀i⠀⠀know⠀⠀you}}$\
+${\textsf{\color{#B6C299}know⠀⠀who⠀⠀i⠀⠀am⠀⠀...⠀}}$\
+⠀
 
-Here are some ideas to get you started:
+![](https://files.catbox.moe/n04iuo.png)\
+⠀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+${\textsf{\color{#B6C299}andrew⠀⠀﹔⠀ fictionkin}}$\
+${\textsf{\color{#B6C299}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
+
+${\textsf{\color{#B6C299}he⠀⠀ᵒᵘ⠀⠀they}}$
+
+
+</div>
