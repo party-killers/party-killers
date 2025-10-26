@@ -1,16 +1,16 @@
 <div align="center">
 
-${\textsf{\color{#9CB094}but⠀⠀i⠀⠀know⠀⠀you}}$\
-${\textsf{\color{#9CB094}know⠀⠀who⠀⠀i⠀⠀am⠀⠀...⠀}}$\
+${\textsf{\color{#FFFFFF}black⠀⠀hair,⠀⠀i'll⠀⠀show}}$\
+${\textsf{\color{#FFFFFF}you⠀⠀what⠀⠀i'm⠀⠀worth⠀⠀.}}$\
 ⠀
 
-![](https://files.catbox.moe/n04iuo.png)\
+![](https://files.catbox.moe/lf790i.png)\
 ⠀
 
-${\textsf{\color{#B6C299}andrew⠀⠀﹔⠀ fictionkin}}$\
-${\textsf{\color{#B6C299}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
+${\textsf{\color{#FFFFFF}andrew⠀⠀﹔⠀ fictionkin}}$\
+${\textsf{\color{#FFFFFF}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
 
-${\textsf{\color{#B6C299}he⠀⠀ᵒᵘ⠀⠀they}}$\
+${\textsf{\color{#FFFFFF}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
 [ponytown info](https://rentry.co/ponytownlings)\
