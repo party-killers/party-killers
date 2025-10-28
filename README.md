@@ -14,7 +14,7 @@ ${\textsf{\color{#FFFFFF}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
 [rentry](https://rentry.co/linnieland)⠀⠀[second rentry](https://rentry.co/andrew-aftg)⠀⠀[ponytown info](https://rentry.co/ponytownlings)\
-atabook⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
+[atabook](https://arcadia.atabook.org/)⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
 ⠀
 
 ✦\
