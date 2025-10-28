@@ -13,7 +13,8 @@ ${\textsf{\color{#FFFFFF}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
 ${\textsf{\color{#FFFFFF}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
-[ponytown info](https://rentry.co/ponytownlings)\
+[rentry](https://rentry.co/linnieland)⠀⠀[second rentry](https://rentry.co/andrew-aftg)⠀⠀[ponytown info](https://rentry.co/ponytownlings)\
+[atabook](https://vinn.atabook.org/)⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
 ⠀
 
 ✦\
