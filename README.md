@@ -10,11 +10,11 @@ ${\textsf{\color{#521817}you⠀⠀what⠀⠀i'm⠀⠀worth⠀⠀.}}$\
 ${\textsf{\color{#752725}andrew⠀⠀﹔⠀ fictionkin}}$\
 ${\textsf{\color{#6B1B1C}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
 
-${\textsf{\color{#531516}he⠀⠀ᵒᵘ⠀⠀they}}$\
+${\textsf{\color{#752725}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
-remaking my rentry  ^_^\
-[atabook](https://125.atabook.org/)⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
+${\textsf{\color{#752725}remaking my rentry ^_^\
+[atabook](https://arcadia.atabook.org/)⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
 ⠀
 
 ✦\
