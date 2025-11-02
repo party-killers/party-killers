@@ -14,7 +14,7 @@ ${\textsf{\color{#752725}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
 ${\textsf{\color{#752725}remaking my rentry !!}}$\
-[atabook](https://arcadia.atabook.org/), [pronouns.cc](https://pronouns.cc/@andreil)
+⠀ [atabook](https://arcadia.atabook.org/), [pronouns.cc](https://pronouns.cc/@andreil)
 ⠀
 
 ✦\
