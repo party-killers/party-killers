@@ -13,7 +13,7 @@ ${\textsf{\color{#6B1B1C}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
 ${\textsf{\color{#752725}he⠀⠀ᵒᵘ⠀⠀they}}$\
 ⠀
 
-${\textsf{\color{#752725}remaking my rentry ^_^\
+${\textsf{\color{#752725}remaking my rentry ^_^}}$\
 [atabook](https://arcadia.atabook.org/)⠀⠀[pronouns.cc](https://pronouns.cc/@andreil)
 ⠀
 
