@@ -12,7 +12,7 @@ ${\textsf{\color{#2D3040}hehim⠀⠀☆⠀⠀unlabelled}}$\
 ${\textsf{\color{#2D3040}fictionkinˏ⠀suspected asd}}$\
 ⠀
 
-[rentry](https://rentry.co/twostabs)${\textsf{\color{#8F91A6},}}$⠀⠀[atabook](https://imperfect.atabook.org)\
+[rentry](https://rentry.co/twostabs)${\textsf{\color{#8F91A6},}}$⠀⠀[atabook]\
 [pronouns.cc](https://pronouns.cc/@andreil)
 
 ${\textsf{\color{#8F91A6}✦}}$
