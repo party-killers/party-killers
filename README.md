@@ -1,23 +1,20 @@
 <div align="center">
 
-${\textsf{\color{#521817}black⠀⠀hair,⠀⠀i'll⠀⠀show}}$\
-${\textsf{\color{#521817}you⠀⠀what⠀⠀i'm⠀⠀worth⠀⠀.}}$\
+${\textsf{\color{#8F91A6}stabbing⠀⠀stars⠀⠀through⠀⠀my⠀⠀back}}$\
+${\textsf{\color{#8F91A6}forwards,⠀⠀beckon,⠀⠀rebound}}$\
 ⠀
 
-![](https://files.catbox.moe/nbxty9.png)\
+![](https://files.catbox.moe/u11acy.png)\
 ⠀
 
-${\textsf{\color{#752725}andrew⠀⠀﹔⠀ fictionkin}}$\
-${\textsf{\color{#6B1B1C}c+h⠀⠀+⠀⠀w2i⠀⠀enc.}}$
-
-${\textsf{\color{#752725}he⠀⠀ᵒᵘ⠀⠀they}}$\
+${\textsf{\color{#2D3040}andrewˏ⠀or⠀⠀twotime}}$\
+${\textsf{\color{#2D3040}hehim⠀⠀☆⠀⠀unlabelled}}$\
+${\textsf{\color{#2D3040}fictionkinˏ⠀suspected asd}}$\
 ⠀
 
-${\textsf{\color{#752725}remaking my rentry !!}}$\
-⠀ [atabook](https://125.atabook.org/)${\textsf{\color{#752725},}}$ [pronouns.cc](https://pronouns.cc/@andreil)
-⠀
+[rentry](https://rentry.co/twostabs)${\textsf{\color{#8F91A6},}}$⠀⠀[atabook](https://imperfect.atabook.org)\
+[pronouns.cc](https://pronouns.cc/@andreil)
 
-✦\
-⠀
+${\textsf{\color{#8F91A6}✦}}$
 
 </div>
