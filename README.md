@@ -10,5 +10,5 @@
   whispers are also preferred\
   i'm very shyyy...
 
-  [rentry](https://rentry.co/chasingfairies) ✦ [atabook](https://imperfect.atabook.org/)\
+  [rentry](https://rentry.co/chasingfairies) ✦ [atabook](https://imperfect.atabook.org/)
 </div>
