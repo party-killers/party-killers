@@ -5,10 +5,7 @@
   he / him
 
   open to c+h with anybody\
-  i like to think i'm friendly\
-  mainly hiding out in the\
-  object show area\
-  
+  i like to think i'm friendly!\
   whispers are also preferred\
   i'm very shyyy...
 
