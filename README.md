@@ -1,7 +1,8 @@
 <div align="center">
 
   andrewˏ fifteen\
-  and unlabeled
+  and unlabeled\
+  he/him
 
   open to c+h with anybody\
   i'm very friendly! primarily\
