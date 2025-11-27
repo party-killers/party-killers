@@ -2,14 +2,16 @@
 
   andrewˏ fifteen\
   and unlabeled\
-  he/him
+  he / him
 
   open to c+h with anybody\
-  i'm very friendly! primarily\
-  in the object show area
+  i like to think i'm friendly\
+  mainly hiding out in the\
+  object show area\
   
   whispers are also preferred\
   i'm very shyyy...
 
+  sign my atabook!\
   [rentry](https://rentry.co/chasingfairies) ✦ [atabook](https://imperfect.atabook.org/)
 </div>
