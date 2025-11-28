@@ -9,6 +9,6 @@
   whispers are also preferred\
   i'm very shyyy...
 
-  sign my atabook!\
+  sign my ata;\
   [rentry](https://rentry.co/chasingfairies) ✦ [atabook](https://imperfect.atabook.org/)
 </div>
