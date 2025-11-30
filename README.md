@@ -9,6 +9,6 @@
   whispers are also preferred\
   i'm very shyyy...
 
-  sign my ata;\
-  [rentry](https://rentry.co/chasingfairies) ✦ [atabook](https://imperfect.atabook.org/)
+  [rentry](https://rentry.co/chasingfairies) ⭑ [ata](https://imperfect.atabook.org/) ⭑ [prns.cc](https://pronouns.cc/@failuregirl)\
+  [colormytree](https://colormytree.me/2025/01JE958N8R21VYZWMDFCMGEXY0)
 </div>
