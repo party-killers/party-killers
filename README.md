@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=party-killers&color=AE6761&label=⠀⠀⠀fleeting⠀⠀𓈒⠀⠀⠀)
+![](https://komarev.com/ghpvc/?username=party-killers&color=AE6761&label=⠀⠀⠀fleeting⠀⠀✦⠀⠀⠀⠀)
 
 
 ![](https://files.catbox.moe/xumr7y.png)
