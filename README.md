@@ -14,6 +14,6 @@
   <sub>$\text{\color{#744322}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
   $\text{\color{#744322}I'm mostly offtab, so whispers are preferred.}$\
 ⠀\
-  [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#9A8979}||}$⠀ ata⠀ $\text{\color{#9A8979}||}$⠀ [prns.cc](https://pronouns.cc/@failuregirl)\
+  [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#9A8979}||}$⠀ [ata](https://andreil.atabook.org/)⠀ $\text{\color{#9A8979}||}$⠀ [prns.cc](https://pronouns.cc/@failuregirl)\
   [color my tree](https://colormytree.me/2025/01JE958N8R21VYZWMDFCMGEXY0)
 </div>
