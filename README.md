@@ -4,16 +4,16 @@
 ⠀\
 ⠀\
 ⠀\
-![](https://files.catbox.moe/w084s2.png)
+![](https://files.catbox.moe/d8vf7q.png)
 ⠀\
 ⠀\
 ⠀\
-  <sub>$\text{\color{#8C5833}Andrew (preferred) or Eurydice; They/He.}$\
-  $\text{\color{#7E531E}Fictionkin 𓈒 Unlabeled. 15yo.}$
+  <sub>$\text{\color{#FFFFFF}Andrew (preferred) or Mike. He/They}$\
+  $\text{\color{#FFFFFFF}Fictionkin 𓈒 Unlabeled. 15yo.}$
 
-  <sub>$\text{\color{#744322}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
-  $\text{\color{#744322}I'm mostly offtab, so whispers are preferred.}$\
+  <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
+  $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
 ⠀\
-  [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#9A8979}||}$⠀ [ata](https://andreil.atabook.org/)⠀ $\text{\color{#9A8979}||}$⠀ [prns.cc](https://pronouns.cc/@failuregirl)\
-  [color my tree](https://colormytree.me/2025/01JE958N8R21VYZWMDFCMGEXY0)
+  [rentry](https://rentry.co/snow-driven)⠀ $\text{\color{#FFFFFF}✦}$⠀ [prns.cc](https://pronouns.cc/@failuregirl)\
+   [atabook](https://andreil.atabook.org/)⠀ 
 </div>
