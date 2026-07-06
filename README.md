@@ -9,7 +9,7 @@ $\text{\color{#3C7749}c+h enc  w2i pref}$\
 \
 $\text{\color{#7C3813}──────── ⠀✶⠀ ────────}$\
 \
-[新book](https://montlie.atabook.org/)  [pronouns.cc](https://pronouns.cc/@montlie)  [strawp](https://montlie.straw.page/)\
+[新book](https://montlie.atabook.org/)  [pronouns.cc](https://pronouns.cc/@montlie)\
 [rentry](https://rentry.co/cholmondeley)  [url hoard](https://rentry.co/rawdatafeel)
 
 ⠀
