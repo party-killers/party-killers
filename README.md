@@ -7,6 +7,9 @@
 $\text{\color{#F6CC42}16yo  infp-t  6w5}$\
 $\text{\color{#F6CC42}c+h enc   w2i pref}$\
 \
+$\text{\color{#F6CC42}oppymince   23/07}$\
+$\text{\color{#F6CC42}♡}$\
+\
 $\text{\color{#E873A8}──────── ⠀✶⠀ ────────}$\
 \
 [新book](https://montlie.atabook.org/)  [pronouns.cc](https://pronouns.cc/@montlie)\
