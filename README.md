@@ -1,13 +1,13 @@
 <div align="center">
   
   
-![](https://komarev.com/ghpvc/?username=shypills&color=E873A8&label=+++visitors+++𓈒+++)\
+![](https://komarev.com/ghpvc/?username=shypills&color=D44A86&label=+++visitors+++𓈒+++)\
 \
-<sub>$\text{\color{#F6CC42}andrew  𓎟  hehim}$\
-$\text{\color{#F6CC42}16yo  infp-t  6w5}$\
-$\text{\color{#F6CC42}c+h enc   w2i pref}$\
+<sub>$\text{\color{#CC9165}andrew  𓎟  hehim}$\
+$\text{\color{#CC9165}16yo  infp-t  6w5}$\
+$\text{\color{#CC9165}c+h enc   w2i pref}$\
 \
-$\text{\color{#E873A8}──────── ⠀✶⠀ ────────}$\
+$\text{\color{#D44A86}──────── ⠀✶⠀ ────────}$\
 \
 [新book](https://montlie.atabook.org/)  [pronouns.cc](https://pronouns.cc/@montlie)\
 [rentry](https://rentry.co/cholmondeley)  [url hoard](https://rentry.co/rawdatafeel)
