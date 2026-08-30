@@ -17,3 +17,10 @@ $\text{\color{#556D3D}⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 $\text{\color{#5D5357}shoutout to these folks⠀;⠀love you all⠀❤︎⁠}$\
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [@freakyfied](https://github.com/freakyfied) [@ST4RGAZEY](https://github.com/ST4RGAZEY) [@kierrrrrrrr](https://github.com/kierrrrrrrr) [@M1lZO](https://github.com/M1lZO) [@skeletallamping](https://github.com/skeletallamping)\
 [@starfollower](https://github.com/freakyfied) [@aesvic](https://github.com/aesvic) [@gumbawll](https://github.com/gumbawll)$\text{\color{#5D5357}⠀⠀✦}$
+\
+\
+$\text{\color{#3D4634}੭    ﹕    ﹒}$\
+\
+[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)
+
+ 
