@@ -21,6 +21,7 @@ $\text{\color{#5D5357}shoutout to these folks⠀;⠀love you all⠀❤︎⁠}$\
 \
 $\text{\color{#3D4634}੭    ﹕    ﹒}$\
 \
-$\text{\color{#5E5F34}✎⠀⠀﹏﹏﹏﹏}$⠀⠀⠀⠀[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)
+$\text{\color{#5E5F34}✎⠀⠀﹏﹏﹏﹏}$⠀⠀⠀⠀[rentry.co](https://rentry.co/montlie)  [pronouns.cc](https://pronouns.cc/@montlie)  [新book](https://montlie.atabook.org/)\
+$\text{\color{#5E5F34}⠀⠀⠀ ⠀⠀⠀⠀ ⠀NOT⠀⠀mobile⠀⠀friendly..}$
 
  
